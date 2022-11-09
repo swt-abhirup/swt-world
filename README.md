@@ -1,3 +1,3 @@
-# Growth Enabling IT Solutions Provider
+# Customer Focused, Growth Enabling IT Solutions Provider
 
 Softweb began its journey in the year 2000 under the flagship of the Warren Group. In the first decade our focus was on developing ERP systems for the Tea and Jute industries. Since then Softweb has transformed itself into a premier IT solutions company. We have become obsessed with going beyond traditional ERP solutions and products such as PACE, PACE360, CVSS among others strive to achieve this. With the advent of Industry 4.0 we have adopted and incorporated latest industry technologies including IoT, BOT, AI, BI among others into existing solutions thereby providing a 360 degree holistic view to ensure our clients always have an edge over their competition.
